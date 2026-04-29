@@ -48,5 +48,5 @@ To secure a Software Developer role where I can apply my skills, gain practical 
 
 ## 📫 Contact
 
-* 📧 Email: [santhanalaxmi.200@gmail.com](mailto:santhanalaxmi.2004@gmail.com)
+* 📧 Email: [santhanalaxmi.2004@gmail.com](mailto:santhanalaxmi.2004@gmail.com)
 * 💼 LinkedIn: https://www.linkedin.com/in/santhanalakshmi-a-8801073a0
